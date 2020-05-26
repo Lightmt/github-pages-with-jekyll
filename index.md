@@ -1,3 +1,3 @@
-# Welcome to my blog
+# Candegrafías
 
-I'm glad you are here. I plan to talk about ...
+Espacio 2.0 para subir letras y líneas.
